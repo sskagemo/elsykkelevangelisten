@@ -1,4 +1,4 @@
-## For en barnevennlig by og glade voksne
+## Det eneste jeg angrer på: At jeg ikke kjøpte elsykkel tidligere
 
 Kontakt [elsykkelevangelisten](elsykkelevangelisten@gmail.com) for spørsmål om elsykkel. Jeg jobber utelukkende pro-bono og tør ikke garantere at jeg svarer så raskt (dessverre).
 
